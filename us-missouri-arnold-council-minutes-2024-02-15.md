@@ -18,6 +18,8 @@
 }
 ---
 
+# February 15, 2024
+
 Mayor Ron Counts called the meeting to order at 7:00 p.m.
 
 The pledge of allegiance was recited. Councilman Jason Fulbright offered the prayer.
@@ -34,9 +36,9 @@ Lori Arons, who was recently appointed to the Jefferson County Council, introduc
 
 A. REGULAR COUNCIL MEETING MINUTES FROM FEBRUARY 1, 2024
 
-B. PAYROLL WARRANT# T00648 IN THE AMOUNT OF $413,220.14
+B. PAYROLL WARRANT #T00648 IN THE AMOUNT OF $413,220.14
 
-C. GENERAL WARRANT# 5852 IN THE AMOUNT OF $625,246.76
+C. GENERAL WARRANT #5852 IN THE AMOUNT OF $625,246.76
 
 **Butch Cooley made a motion and so moved to approve the consent agenda.** Seconded by EJ Fleischmann. Roll call vote: Hood, yes; Cooley, yes; Plunk, yes; McArthur, yes; Mullins, yes; Moritz, yes; Fleischmann, yes; Fulbright, yes; 8 Yeas: **Motion carried.**
 
