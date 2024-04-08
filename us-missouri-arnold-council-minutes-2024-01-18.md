@@ -35,8 +35,11 @@ None
 ## CONSENT AGENDA
 
 A. REGULAR COUNCIL MEETING MINUTES FROM JANUARY 4, 2024
+
 B. PAYROLL WARRANT #T00609 IN THE AMOUNT OF $457,060.31
+
 C. PAYROLL WARRANT #T00616 IN THE AMOUNT OF $421,875.39
+
 D. GENERAL WARRANT #5850 IN THE AMOUNT OF $235,978.21
 
 **Butch Cooley made a motion and so moved to approve the consent agenda.** Seconded by Mark Hood. Roll call vote: Fulbright, yes; Hood, yes; Cooley, yes; Plunk, yes; Mullins, yes; Moritz, yes; McArthur, yes; Fleischmann, yes; 8 Yeas: **Motion carried.**
