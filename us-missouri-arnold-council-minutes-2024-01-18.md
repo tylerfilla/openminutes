@@ -102,7 +102,9 @@ Mayor Counts announced a five-minute recess before going into Closed Session.
 
 ---
 
-Closed Session ended at 8:00 p.m. A motion to adjourn the meeting was made by Jason Fulbright. Seconded by Rodney Mullins.
+Closed Session ended at 8:00 p.m.
+
+A motion to adjourn the meeting was made by Jason Fulbright. Seconded by Rodney Mullins.
 
 Voice vote: All Yeas.
 
