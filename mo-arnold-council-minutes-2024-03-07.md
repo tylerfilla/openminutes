@@ -4,7 +4,7 @@
   "municipalJurisdiction": "US:MO",
   "municipalName": "City of Arnold",
   "municipalNameFriendly": "Arnold",
-  "municipalWikidata": "Q602688",
+  "municipalWikidata": "Q602688"
 }
 ---
 
