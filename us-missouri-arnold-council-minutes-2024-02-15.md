@@ -48,19 +48,19 @@ None
 
 ## RESOLUTIONS
 
-### RESOLUTION NO. 24-07—A RESOLUTION RE-APPOINTING INDIVIDUALS TO SERVE ON THE PARKS BOARD WITH DIFFERENT EXPIRATION DATES
+### RESOLUTION NO. 24-07 — A RESOLUTION RE-APPOINTING INDIVIDUALS TO SERVE ON THE PARKS BOARD WITH DIFFERENT EXPIRATION DATES
 
 **Bill Moritz made a motion and so moved to approve Resolution No 24-07.** Seconded by Gary Plunk. Roll call vote: Hood, yes; Cooley, yes; Plunk, yes; McArthur, yes; Mullins, yes; Moritz, yes; Fleischmann, yes; Fulbright, yes; 8 Yeas: **Resolution passed.**
 
-### RESOLUTION NO. 24-08—A RESOLUTION AUTHORIZING THE COUNTY OF JEFFERSON, MISSOURI TO ATTACH A SPECIAL TAX TO THE PROPERTY TAX BILL FOR A PROPERTY LOCATED AT 3532 TELEGRAPH ROAD, ALSO DESCRIBED AS PARCEL NUMBER 093.005.01002018, IN ORDER TO COLLECT THE COSTS ASSOCIATED WITH THE ABATEMENT OF A NUISANCE
+### RESOLUTION NO. 24-08 — A RESOLUTION AUTHORIZING THE COUNTY OF JEFFERSON, MISSOURI TO ATTACH A SPECIAL TAX TO THE PROPERTY TAX BILL FOR A PROPERTY LOCATED AT 3532 TELEGRAPH ROAD, ALSO DESCRIBED AS PARCEL NUMBER 093.005.01002018, IN ORDER TO COLLECT THE COSTS ASSOCIATED WITH THE ABATEMENT OF A NUISANCE
 
 **Mark Hood made a motion and so moved to approve Resolution No 24-08.** Seconded by Brian McArthur. Roll call vote: Hood, yes; Cooley, yes; Plunk, yes; McArthur, yes; Mullins, yes; Moritz, yes; Fleischmann, yes; Fulbright, yes; 8 Yeas: **Resolution passed.**
 
-### RESOLUTION NO. 24-09—A RESOLUTION AUTHORIZING THE PURCHASE OF A CERTAIN PARCEL OF PROPERTY OWNED IN TRUST BY THE JEFFERSON COUNTY, MISSOURI DELINQUENT TAX TRUSTEE
+### RESOLUTION NO. 24-09 — A RESOLUTION AUTHORIZING THE PURCHASE OF A CERTAIN PARCEL OF PROPERTY OWNED IN TRUST BY THE JEFFERSON COUNTY, MISSOURI DELINQUENT TAX TRUSTEE
 
 **Rodney Mullins made a motion and so moved to approve Resolution No 24-09.** Seconded by Gary Plunk. Roll call vote: Hood, yes; Cooley, yes; Plunk, yes; McArthur, yes; Mullins, yes; Moritz, yes; Fleischmann, yes; Fulbright, yes; 8 Yeas: **Resolution passed.**
 
-### RESOLUTION NO. 24-10—A RESOLUTION AUTHORIZING THE MAYOR TO ENTER INTO AN AGREEMENT WITH PETER'S EICHLER MECHANICAL INC.
+### RESOLUTION NO. 24-10 — A RESOLUTION AUTHORIZING THE MAYOR TO ENTER INTO AN AGREEMENT WITH PETER'S EICHLER MECHANICAL INC.
 
 **Jason Fulbright made a motion and so moved to approve Resolution No 24-10.** Seconded by Bill Moritz. Roll call vote: Hood, yes; Cooley, yes; Plunk, yes; McArthur, yes; Mullins, yes; Moritz, yes; Fleischmann, yes; Fulbright, yes; 8 Yeas: **Resolution passed.**
 
