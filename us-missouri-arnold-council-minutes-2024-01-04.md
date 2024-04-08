@@ -1,3 +1,13 @@
+---
+{
+  "type": "MinutesFromMunicipalGovMeeting",
+  "municipalJurisdiction": "US:MO",
+  "municipalName": "City of Arnold",
+  "municipalNameFriendly": "Arnold",
+  "municipalWikidata": "Q602688"
+}
+---
+
 # January 4, 2024
 
 Mayor Ron Counts called the meeting to order at 7:00 p.m.
