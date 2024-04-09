@@ -49,7 +49,7 @@ D. GENERAL WARRANT #5847 IN THE AMOUNT OF $1,251,249.44
 ### BILL NO 2871 — AN ORDINANCE APPROVING A GENERAL WARRANTY DEED BETWEEN THE MISSOURI HIGHWAYS AND TRANSPORTATION COMMISSION AND THE CITY OF ARNOLD
 **BILL NO 2871 — AN ORDINANCE APPROVING A GENERAL WARRANTY DEED BETWEEN THE MISSOURI HIGHWAYS AND TRANSPORTATION COMMISSION AND THE CITY OF ARNOLD** was read twice by City Clerk Tammi Casey. Roll call vote: Fulbright, yes; Plunk, yes; Fleischmann, yes; Hood, yes; Mullins, yes; Cooley, yes; McArthur, yes; Moritz, yes; 8 Yeas: **Ordinance passed.**
 
-# RESOLUTIONS
+## RESOLUTIONS
 
 ### RESOLUTION NO. 23-67 — A RESOLUTION AUTHORIZING THE MAYOR TO EXECUTE A CERTAIN QUIT CLAIM DEED
 **Gary Plunk made a motion and so moved to approve Resolution No 23-67.** Seconded by EJ Fleischmann. Roll call vote: Fulbright, yes; Plunk, yes; Fleischmann, yes; Hood, yes; Mullins, yes; Cooley, yes; McArthur, yes; Moritz, yes; 8 Yeas: **Resolution passed.**
