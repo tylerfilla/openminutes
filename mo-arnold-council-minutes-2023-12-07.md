@@ -74,13 +74,13 @@ Bryan Richison informed council that this conditional use permit is to allow for
 ### D. A MOTION TO HOLD A CLOSED SESSION IMMEDIATELY FOLLOWING THE CITY COUNCIL MEETING FOR THE PURPOSE OF DISCUSSING LITIGATION RSMo 610.021 (1)
 **Rodney Mullins made a motion and so moved to hold a closed session immediately following the city council meeting.** Seconded by Butch Cooley. Roll call vote: Fulbright, yes; Plunk, yes; Fleischmann, yes; Hood, yes; Mullins, yes; Cooley, yes; McArthur, yes; Moritz, yes; 8 Yeas: **Motion carried.**
 
-# REPORTS FROM MAYOR AND COUNCIL
+## REPORTS FROM MAYOR AND COUNCIL
 
 Mayor Counts — Stated the first annual Christmas in the Park event was a huge success. Residents have told him it was one of the best events the City has ever held. Mayor Counts thanked Dave Crutchley and his staff, as well as the committee, for all of their hard work. Every council member echoed Mayor Counts' sentiments regarding the Christmas in the Park event.
 
 EJ Fleischmann, Ward 1 — Stated he was so impressed with how the community came together to provide support for the Feed the Masses Food Drive. Also, the Chamber of Commerce held their Christmas Party and presented Justin Price, owner of Wesley Rogers Restaurant, with the Business Person of the Year Award.
 
-# ADMINISTRATIVE REPORTS
+## ADMINISTRATIVE REPORTS
 
 Chief Carroll — Informed everyone that the annual "Shop with a Cop" Christmas event will take place next Wednesday and the department will be serving 160 families during that event.
 
